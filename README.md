@@ -20,3 +20,6 @@ We will provide compilation tutorials to assist users in using this firmware.
 If you have any questions, feel free to join our group!
 
 [Discord community](https://discord.gg/F7N2JKCzDm).
+
+
+This DC is a scam pls not trust !!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
